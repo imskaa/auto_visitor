@@ -25,23 +25,31 @@ How to use ?
 10. Put your website link and enter
 <br>
 11. Input views ammount and enter
-
+<br>
 Buy me some coffe on paypal : lermediainfo@gmail.com
+<br>
 Buy me some chip on Crypto :
-
+<br>
 Btc : 1KQW9iLWLTo7C4QH7TL21o2JVW4FcnDxhz
+<br>
 Eth : 0xb5a42d6f61d2f9049d6cb6e0db262e686bd752ef
+<br>
 Ltc : LPhASFoE1YvAhxhDeE12fJQaFDEzbaKsUp
+<br>
 Doge : DDoiqhL3t5ipNXZwwCqURDZZSbwt8eczv6
-
+<br>
 Support or asking <a href="mailto:madzxcc@gmail.com">madzxcc@gmail.com</a>
-
+<br>
 Visit my website :
+<br>
 <a href="https://black-box.pw">Crypto</a>
+<br>
 <a href="https://black-box.pw/st">Shorlink ( you can earn money )</a>
+<br>
 <a href="https://black-box.pw/ads">Ads Pub/adver ( Earn money too )</a>
+<br>
 <a href="https://maggz.black-box.pw">Hentai Sharing</a>
-
+<br>
 Follow my instagram :
-
+<br>
 <a href="https://www.instagram.com/imskaa">ImSkaa</a>
